@@ -1,4 +1,4 @@
-
+Enhance Little Snitch for macOS with advanced Little Snitch for macOS Integration | device-lock + data-breach-alerts, the #1 integration. Includes device-lock and
 
 
 
